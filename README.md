@@ -15,6 +15,7 @@ Ans: My main career goal is to learn every day and upgrade myself. I really want
 Selected: NO
 
 4.If you answered no, please help us understand why.
+
 I don’t have enough money to invest in my education, I can invest only my time now
  
  THIS WILL TAKE AROUND 15 DAYS TO APPROVE
