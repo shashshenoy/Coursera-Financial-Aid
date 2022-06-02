@@ -18,4 +18,4 @@ Selected: NO
 
 I don’t have enough money to invest in my education, I can invest only my time now
  
- THIS WILL TAKE AROUND 15 DAYS TO APPROVE
+ THIS WILL TAKE AROUND 15 DAYS TO APPROVE. 
